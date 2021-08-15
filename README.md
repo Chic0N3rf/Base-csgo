@@ -1,2 +1,2 @@
 # Base-csgo
-potatoe
+thanks stray :)
